@@ -19,7 +19,7 @@ Low-level threats, but should still be watched out for such as users who have by
 - **[allthewaynow4](https://www.roblox.com/users/5335996337/profile):** User is in ERP groups and has ERP accounts friended.
 - **[bothersomeonelserblx](https://www.roblox.com/users/7166002039/profile):** User is in raceplay groups and claims to be 16 with their Discord username in their bio.
 - **[41Sant41](https://www.roblox.com/users/2851454875/profile):** User wears a bypassed avatar.
-- **[guesshack9999](https://www.roblox.com/users/66968316/profile):** User has a large number of ERP accounts friended, including [Holo](https://discord.com/channels/1290868266910220348/1358122435618275378/1358123546139820103).
+- **[guesshack9999](https://www.roblox.com/users/66968316/profile):** User has a large number of ERP accounts friended, including Holo, who is seen in the Blacklist.
 - **[PoweringProtogens](https://www.roblox.com/users/88875824/profile):** User is in Sniffing Proto, likely to be a fart group.
 - **[Mr_GoodBringer](https://www.roblox.com/users/150968716/profile):** User is friended with ERP accounts and is in Mellow Studios, which was known for creating inflation fetish games.
 - **[THE_NUKEBOY1GAMING](https://www.roblox.com/users/231481444/profile):** User is in many vore groups.
