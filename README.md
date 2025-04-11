@@ -46,9 +46,11 @@ Moderate threats to the platform such as condo/ERP group owners, widespread RR34
 - **[KimatTheGoat](https://www.roblox.com/users/1630203571/profile):** User has bypassed avatars and shows fetish material on his Discord profile. Also enabled Holo, seen in the Blacklist.
 - **[KimatTheSpareFood](https://www.roblox.com/users/62157833/profile):** User has bypassed avatars and shows fetish material on his Discord profile. Also enabled Holo, seen in the Blacklist. Duplicate entry from KimatTheGoat.
 - **Asher Fox/[Reevox](https://www.roblox.com/users/135038601/profile):** Known to engage in babyfur groups and content. User's "Asher" account has since been terminated.
-- **dreadded/[asttraeus](https://www.roblox.com/users/1503957584/profile)/[muskslt](https://www.roblox.com/users/5534261215/profile):** Known condo owner, owner of the group "Unbearable Members".
+- **dreadded/[asttraeus](https://www.roblox.com/users/1503957584/profile):** Known condo owner, owner of the group "Unbearable Members". Main account of "muskslt".
+- **[muskslt](https://www.roblox.com/users/5534261215/profile):** Known condo owner, owner of the group "Unbearable Members".
 - **[Chocolateafudge2](https://www.roblox.com/users/2289971751/profile):** Known to be the owner/admin of The Fursuit ~Group~ and Foxxos, which are both vore groups.
-- **[FluffieFurryFox](https://www.roblox.com/users/5633543954/profile)/[RuimTheWolf](https://www.roblox.com/users/4312251217/profile):** Known to be an admin or owner of Foxxos, a vore group.
+- **[FluffieFurryFox](https://www.roblox.com/users/5633543954/profile):** Known to be an admin or owner of Foxxos, a vore group.
+- **[RuimTheWolf](https://www.roblox.com/users/4312251217/profile):** Known to be an admin or owner of Foxxos, a vore group. Duplicate entry from FluffieFurryFox.
 - **[TempleGoddess](https://www.roblox.com/users/7081717502/profile):** Known to be the owner of Temple of the Black Goddess, an ERP group related to worship and raceplay.
 - **[SlimeyTrell](https://www.roblox.com/users/567212223/profile):** Known to be the owner of Bottomless Society, a fart RP group.
 - **[12GER1US](https://www.roblox.com/users/1843115224/profile):** Main account of the owner of Nom Nom's Hub, a vore group.
