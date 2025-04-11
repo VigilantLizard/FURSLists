@@ -5,7 +5,8 @@ Lists written by Furries Upholding Roblox Safety.
 Low-level threats, but should still be watched out for such as users who have bypassed avatars, are in ERP groups, or have indirect connections with an NSFW account through similar usernames.
 - **[Bonfie3D](https://www.roblox.com/users/4946862186/profile):** User has many avatars that reference porn or are too suggestive for Roblox.
 - **[xXyeStar](https://www.roblox.com/users/3587246995/profile):** User has very suggestive avatars and refuses to do anything about it, even when confronted.
-- **[PawteoDerg](https://www.roblox.com/users/332864766/profile)/[PawyDergy](https://www.roblox.com/users/7443300298/profile):** User is known to be in vore groups and be involved in Roblox vore communities. Also heavily linked with vore art on his off-platform accounts.
+- **[PawteoDerg](https://www.roblox.com/users/332864766/profile):** User is known to be in vore groups and be involved in Roblox vore communities. Also heavily linked with vore art on his off-platform accounts.
+- **[PawyDergy](https://www.roblox.com/users/7443300298/profile):** User is known to be in vore groups and be involved in Roblox vore communities. Also heavily linked with vore art on his off-platform accounts. Duplicate entry from PawteoDerg.
 - **[AkariTheFluff](https://www.roblox.com/users/57726317/profile):** User is widely known to engage in and create RR34 content. Wouldn't be an issue if it was lesser known or more distant from his Roblox identity. However, this isn't shown on his Roblox profile, so he's here instead of the warning list.
 - **[Tidalcyan](https://www.roblox.com/users/533219100/profile):** User is in Voyage Beyond Studios, a vore group.
 - **[Emily_Gamer12234](https://www.roblox.com/users/2043909836/profile):** User is in many vore groups and uses a bypassed avatar.
@@ -42,7 +43,8 @@ Low-level threats, but should still be watched out for such as users who have by
 
 # Warning List
 Moderate threats to the platform such as condo/ERP group owners, widespread RR34 creators, and direct NSFW connections on their profile.
-- **[KimatTheGoat](https://www.roblox.com/users/1630203571/profile)/[KimatTheSpareFood](https://www.roblox.com/users/62157833/profile):** User has bypassed avatars and shows fetish material on his Discord profile. Also enabled Holo, seen in the Blacklist.
+- **[KimatTheGoat](https://www.roblox.com/users/1630203571/profile):** User has bypassed avatars and shows fetish material on his Discord profile. Also enabled Holo, seen in the Blacklist.
+- **[KimatTheSpareFood](https://www.roblox.com/users/62157833/profile):** User has bypassed avatars and shows fetish material on his Discord profile. Also enabled Holo, seen in the Blacklist. Duplicate entry from KimatTheGoat.
 - **Asher Fox/[Reevox](https://www.roblox.com/users/135038601/profile):** Known to engage in babyfur groups and content. User's "Asher" account has since been terminated.
 - **dreadded/[asttraeus](https://www.roblox.com/users/1503957584/profile)/[muskslt](https://www.roblox.com/users/5534261215/profile):** Known condo owner, owner of the group "Unbearable Members".
 - **[Chocolateafudge2](https://www.roblox.com/users/2289971751/profile):** Known to be the owner/admin of The Fursuit ~Group~ and Foxxos, which are both vore groups.
@@ -61,5 +63,6 @@ Moderate threats to the platform such as condo/ERP group owners, widespread RR34
 # Blacklist
 High-level threats, such as users who are known to have groomed minors or willingly exposed them to NSFW content, *especially* if said minors didn't want to see such. Illegal content encouragement also falls under this.
 - **[Holo/Just_Holograms](https://www.roblox.com/users/64798307/profile):** Known to put very suggestive, fetishistic content on his "SFW" Twitter, which is linked on his Roblox profile. Also known to have pushed his inflation fetish art on a 14-year-old when he was 19, denying ever doing anything wrong.
-- **[NathansWildFurries](https://www.roblox.com/users/6149616533/profile)/[SkullDogRose](https://www.roblox.com/users/7450781597/profile):** User is known to have brought minors to adult platforms and is heavily involved with several Roblox vore communities. User also has many "nom" (vore) and eating games favorited.
+- **[NathansWildFurries](https://www.roblox.com/users/6149616533/profile):** User is known to have brought minors to adult platforms and is heavily involved with several Roblox vore communities. User also has many "nom" (vore) and eating games favorited.
+- **[SkullDogRose](https://www.roblox.com/users/7450781597/profile):** User is known to have brought minors to adult platforms and is heavily involved with several Roblox vore communities. User also has many "nom" (vore) and eating games favorited. Duplicate entry from NathansWildFurries.
 - **[JayceonY2k](https://www.roblox.com/users/7424633171/profile):** User is in many ERP groups. Bio is a ROT cipher which translates to "shota who loves dirty pxdos; game only; ask for socials"
