@@ -40,6 +40,7 @@ Low-level threats, but should still be watched out for such as users who have by
 - **[WolfDogFoox](https://www.roblox.com/users/1086006903/profile):** User is in ERP groups.
 - **[ActualFurSteell](https://www.roblox.com/users/250528/profile):** User is in ERP groups.
 - **[Star_Herox1OOO](https://www.roblox.com/users/4926230591/profile):** User has 15 suspicious accounts added and uses a bypassed avatar.
+- **[blakepink20174kr](https://www.roblox.com/users/986121964/profile):** User wears bypassed avatars.
 
 # Warning List
 Moderate threats to the platform such as condo/ERP group owners, widespread RR34 creators, and direct NSFW connections on their profile.
