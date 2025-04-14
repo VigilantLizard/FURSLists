@@ -41,6 +41,14 @@ Low-level threats, but should still be watched out for such as users who have by
 - **[ActualFurSteell](https://www.roblox.com/users/250528/profile):** User is in ERP groups.
 - **[Star_Herox1OOO](https://www.roblox.com/users/4926230591/profile):** User has 15 suspicious accounts added and uses a bypassed avatar.
 - **[blakepink20174kr](https://www.roblox.com/users/986121964/profile):** User wears bypassed avatars.
+- **[ItzMrEe_BruhE341imp](https://www.roblox.com/users/2032527712/profile):** User has several suggestive outfits saved.
+- **[KingCookie2118](https://www.roblox.com/users/3330508877/profile):** User has many inappropriate outfits saved.
+- **[dogedoge12335](https://www.roblox.com/users/1199888549/profile):** User has many inappropriate outfits saved.
+- **[0moonlightbae15](https://www.roblox.com/users/162357430/profile):** User is friends with many DILF/bara accounts and has several such outfits saved.
+- **[House12ty](https://www.roblox.com/users/3334554500/profile):** User has many inappropriate outfits saved.
+- **[w1lxw](https://www.roblox.com/users/1055683971/profile):** User has many bypassed avatars saved.
+- **[7w7Creadorade7u7](https://www.roblox.com/users/4415902018/profile):** User wears a bypassed avatar.
+- **[happy_protogen651](https://www.roblox.com/users/7688962695/profile):** User has many bypassed avatars saved.
 
 # Warning List
 Moderate threats to the platform such as condo/ERP group owners, widespread RR34 creators, and direct NSFW connections on their profile.
@@ -62,6 +70,12 @@ Moderate threats to the platform such as condo/ERP group owners, widespread RR34
 - **[AshleyR14A](https://www.roblox.com/users/1553571392/profile):** Fart Service's "Service Girl".
 - **[emberfoxo](https://www.roblox.com/users/125805612/profile):** User posts suggestive material on a linked Twitter account.
 - **[DarkstalkarPrimagen](https://www.roblox.com/users/60622047/profile):** User is here instead of the watchlist or blacklist as we are unsure where to put him. In several ERP groups, many of which relate to macro or bara. His FurAffinity has a very similar (but not identical) name to his Roblox account, and said account contains NSFW material and macro fetish content.
+- **[stabuna](https://www.roblox.com/users/510217382/profile):** User has many bypassed avatars saved and has ERP accounts added. Bio references "scissoring", a lesbian sex activity.
+- **[POOPYZEI](https://www.roblox.com/users/510217382/profile):** User has "SLUT" spelled out in favorites and is friended with a suspicious number of deleted accounts.
+- **[iiheartsforkenzie](http://roblox.com/users/4388612826/profile):** User mostly has NSFW avatars saved and has ERP accounts added.
+- **[bxdd_gxrl](https://www.roblox.com/users/4793902761/profile):** User has many NSFW avatars saved.
+- **[Ardesiacs](https://www.roblox.com/users/5039011973/profile):** User mostly has NSFW avatars saved and still actively wears them.
+- **[petgirlfwend](https://www.roblox.com/users/2612980883/profile):** User has extremely suggestive avatars, some even NSFW.
 
 # Blacklist
 High-level threats, such as users who are known to have groomed minors or willingly exposed them to NSFW content, *especially* if said minors didn't want to see such. Illegal content encouragement also falls under this.
@@ -70,3 +84,5 @@ High-level threats, such as users who are known to have groomed minors or willin
 - **[SkullDogRose](https://www.roblox.com/users/7450781597/profile):** User is known to have brought minors to adult platforms and is heavily involved with several Roblox vore communities. User also has many "nom" (vore) and eating games favorited. Duplicate entry from NathansWildFurries.
 - **[JayceonY2k](https://www.roblox.com/users/7424633171/profile):** User is in many ERP groups. Bio is a ROT cipher which translates to "shota who loves dirty pxdos; game only; ask for socials"
 - **[keoneontopv2](https://www.roblox.com/users/2807253626/profile):** Known predator caught by Schlep and the RoCatchers team. Was previously arrested for trying to meet with a 13-year-old in real life. Found from [this tweet](https://x.com/RoCatchers/status/1911069882449375531).
+- **[prettyylittlegirI](https://www.roblox.com/users/5274998868/profile):** Claims to be a 12-year-old virgin in their bio, alluding to ERP with an underage girl. This is illegal.
+- **[Aliscyia](https://www.roblox.com/users/2899085850/profile):** User is friends with 33 suspicious accounts, which composes about 22% of their friends list. They advertise their Discord in their bio and claim to be 16. Alludes to illegal activity.
